@@ -1,1 +1,1 @@
-DROGA DE VIDA
+nn
